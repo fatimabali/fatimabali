@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fatimabali
+- 👀 I’m open to anything in the tech world
+- 🌱 I’m currently studying economics at MMU
+- 💞️ I’m looking to collaborate on building communities in analytics and tech
+- 📫 My LinkedIn is www.linkedin.com/in/fatima-ali-7a2b9a296 
